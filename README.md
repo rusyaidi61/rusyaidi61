@@ -18,8 +18,7 @@ I'm open to collaborating on:
 - Coding challenges and hackathons  
 
 ## 📫 How to Reach Me
-- ✉️ Email: [your-email@example.com](mailto:your-email@example.com)
-- 💼 LinkedIn: [linkedin.com/in/yourusername](https://linkedin.com/in/yourusername)
+- ✉️ Email: [shalimerusyaidi@gmail.com](mailto:shalimerusyaidi@gmail.com)
 - 🌟 GitHub: [rusyaidi61](https://github.com/rusyaidi61)
 
 ## 😄 Pronouns
